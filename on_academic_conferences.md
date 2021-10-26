@@ -1,10 +1,10 @@
 **The Art of Mindful Schmoozing or “Why I Can Never Go to an Academic Conference Again”**
 
-I am an introvert. 
-Academic conferences are my kryptonite. 
-The fear begins at home as I pack for the trip.
-Flash drive? Check. Laptop? Check.
-Blazer that makes my already stringy and boyish upper body even more boyish? Check.
+I am an introvert.  
+Academic conferences are my kryptonite.   
+The fear begins at home as I pack for the trip.  
+Flash drive? Check. Laptop? Check.  
+Blazer that makes my already stringy and boyish upper body even more boyish? Check.  
 A pencil skirt? Check. Oh wait, I should probably shave my legs. Even though I don’t want to because honestly when you have crippling depression, body hair reminds you that you are human. Oh wait---there’s my tights. Okay. Those cover the hair up. Why do I even have to dress in these clothes? I prefer how I look and feel in men’s clothes anyway. Why did I sign up for this conference 5 months ago? I just want to be home with my dogs and cats and Seinfeld on autoplay. 
 
 The flight the next day. The first few minutes of sitting down in your airplane seat will determine the rest of your flight. The person next to me ever so slightly turns their head in my direction. You can’t acknowledge it, you can’t engage. I bend down to tie my shoe, and bury my head in the SkyMall magazine. This toaster that makes toast engraved with the shape of Bob Ross’s face looks nice, maybe I should buy it. The person is still looking at me out of their peripheral vision. I know any second they are going to say “So what brings you to ‘any given city?’” I can’t falter. I can’t concede. By now my brow is furrowed in determination to not talk to this person. The saint in the window seat is reading a book on liturgical philosophy and shows no inclination to speak to me. Bless you, sir. You are a gentleman and a scholar. The flight attendant comes by with the drinks cart. I pretend like I am asleep so the person to my right won’t try to make conversation over our shared desire for refreshment. I am so thirsty. I’m even dizzy because of it. I don’t drink enough water. But, as I exit the plane 2.5 hours later, I have not spoken to one person. My friends, on this day I have been victorious. 
